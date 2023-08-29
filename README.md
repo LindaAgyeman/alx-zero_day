@@ -1,1 +1,1 @@
-My first readme
+Please God help us
